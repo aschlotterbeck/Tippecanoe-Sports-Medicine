@@ -13,8 +13,8 @@
 
 * 6/16: 7am to 12pm
 * 6/17: 7am to 12pm
-* 6/18: 2pm to 7pm
-* 6/19: 7am to 12pm
+* 6/18: 7am to 12pm & 3pm to 7pm
+* 6/19: ATR closed
 * 6/20: ATR closed
 * 6/21: ATR closed
 
