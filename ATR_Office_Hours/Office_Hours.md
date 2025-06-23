@@ -11,7 +11,7 @@
 ---
 ### Athletic Training Room (ATR) hours for the week of June 23 to 28:
 
-* 6/23: 7am to 11am & 4pm to 8pm
+* 6/23: 7am to 11am & 4pm to 6pm
 * 6/24: 7am to 12pm
 * 6/25: ATR closed
 * 6/26: 7am to 12pm
