@@ -14,7 +14,7 @@
 * 6/30: 7am to 11am
 * 7/1:  7am to 11am
 * 7/2:  ATR closed
-* 7/3:  7am to 11am
+* 7/3:  ATR closed 
 * 7/4:  ATR closed
 * 7/5:  ATR closed
 
