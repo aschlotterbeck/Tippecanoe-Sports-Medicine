@@ -9,13 +9,15 @@
 |27 |28 |29 |30 |31 |   |   |
 
 ---
-### Athletic Training Room (ATR) hours for the week of June 30 to July 5:
+### Athletic Training Room (ATR) hours for the week of July 7 to July 12:
 
-* 6/30: 7am to 11am
-* 7/1:  7am to 11am
-* 7/2:  ATR closed
-* 7/3:  ATR closed 
-* 7/4:  ATR closed
-* 7/5:  ATR closed
+* 7/7: 7am to 12pm - will be at City Park for FB camp 10-11:30am
+* 7/8: 7am to 12pm - will be at City Park for FB camp 10-11:30am
+* 7/9: ATR closed
+* 7/10: 7am to 12pm - will be at City Park 10-11:30am
+* 7/11: ATR closed
+* 7/12: ATR closed
+
+*Will be at City Park for FB camp days from 10am to 11:30am on Mon/Tues/Thurs.*
 
 **Hours and event coverage details are subject to change**
