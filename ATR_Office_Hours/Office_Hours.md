@@ -19,6 +19,6 @@
 
 *Will be at City Park for FB camp days from 10am to 11:30am on Mon & Tues.*
 
-###The ATR will be closed during the period of July 18 through July 27. Regular ATR hours will resume on July 28th.
+### The ATR will be closed during the period of July 18 through July 27. Regular ATR hours will resume on July 28th.
 
 **Hours and event coverage details are subject to change**
