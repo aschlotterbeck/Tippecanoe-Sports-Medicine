@@ -12,11 +12,11 @@
 
 ### Morning ATR hours for July 28th posted below. Office hours for the remainder of the week will be posted by approximately noon on Monday.
 
-7/28: ATR will be open from 7am until 10am, then at City Park for football camp from 10am to 11:30am
-7/29: TBA
-7/30: TBA
-7/31: TBA
-8/1: TBA
-8/2: TBA
+7/28: ATR will be open from 7am until 10am, then at City Park for football camp from 10am to 11:30am  
+7/29: TBA  
+7/30: TBA  
+7/31: TBA  
+8/1: TBA  
+8/2: TBA  
 
 **Hours and event coverage details are subject to change**
