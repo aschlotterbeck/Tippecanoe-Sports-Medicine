@@ -15,9 +15,9 @@
 
 8/4: ATR open 2pm to 8:30pm  
 8/5: ATR open 2pm to 6pm + Red & White FB Scrimmage @ City Park  
-8/6: TBA  
+8/6: ImPACT testing w/ Girls Soccer @ 11am in room 109 w/ Aaron + Boys Soccer scrimmage @ 11am (Moe covering) + ATR open 2pm to 6pm  
 8/7: ATR open 2pm to 8:30pm  
-8/8: TBA  
+8/8: ImPACT testing in room 109 w/ Juniors @ 2pm, then Freshmen @ 3pm + ATR open 4pm to 6pm  
 8/9: ATR open 7am to 8:30am + HS Football Scrimmage @ Beavercreek HS from 10am to 1pm  
 
 **ATR hours and event coverage details are subject to change**
