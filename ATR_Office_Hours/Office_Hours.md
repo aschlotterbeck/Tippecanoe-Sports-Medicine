@@ -11,13 +11,14 @@
 
 ---  
 
-### ATR hours for the week of August 4 through 9:  
+### ATR hours for the week of August 11 through 16:  
 
-8/4: ATR open 2pm to 8:30pm  
-8/5: ATR open 2pm to 6pm + Red & White FB Scrimmage @ City Park  
-8/6: ImPACT testing w/ Girls Soccer @ 11am in room 109 w/ Aaron + Boys Soccer scrimmage @ 11am (Moe covering) + ATR open 2pm to 6pm  
-8/7: ATR open 2pm to 8:30pm  
-8/8: ImPACT testing in room 109 w/ Juniors @ 2pm, then Freshmen @ 3pm + ATR open 4pm to 6pm  
-8/9: ATR open 7am to 8:30am + HS Football Scrimmage @ Beavercreek HS from 10am to 1pm  
+8/11: ATR open 2-4:45pm + GSoc Scrimmages vs Miamisburg @ City Park  
+8/12: ATR open 2-4:15pm + BSoc Scrimmages vs Wapakoneta @ City Park  
+8/13: ATR open 2-5:30pm  
+8/14: ATR open 2-4:15pm + BSoc Scrimmages vs DeSales @ City Park  
+8/15: ATR open 2-5:30pm + FB Scrimmage vs Anna @ City Park  
+8/16: ATR open 8am to 12pm  
 
-**ATR hours and event coverage details are subject to change**
+**ATR hours and event coverage details are subject to change**  
+
