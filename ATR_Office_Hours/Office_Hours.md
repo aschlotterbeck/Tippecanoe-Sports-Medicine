@@ -18,7 +18,7 @@
 8/13: ATR open 2-5:30pm  
 8/14: ATR open 2-4:15pm + BSoc Scrimmages vs DeSales @ City Park  
 8/15: ImPACT testing w/ BSoc 2-3pm + ATR open 3-5:30pm + FB Scrimmage vs Anna @ City Park  
-8/16: ATR open 8am to 12pm  
+8/16: ATR open 8am to 11am + ImPACT testing w/ VB 11am-12pm  
 
 **ATR hours and event coverage details are subject to change**  
 
