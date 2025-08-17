@@ -11,14 +11,14 @@
 
 ---  
 
-### ATR hours for the week of August 11 through 16:  
+### ATR hours for the week of August 18 through 23:  
 
-8/11: ATR open 2-4:45pm + GSoc Scrimmages vs Miamisburg @ City Park  
-8/12: ATR open 2-4:15pm + BSoc Scrimmages vs Wapakoneta @ City Park  
-8/13: ATR open 2-5:30pm  
-8/14: ATR open 2-4:15pm + BSoc Scrimmages vs DeSales @ City Park  
-8/15: ImPACT testing w/ BSoc 2-3pm + ATR open 3-5:30pm + FB Scrimmage vs Anna @ City Park  
-8/16: ATR open 8am to 11am + ImPACT testing w/ VB 11am-12pm  
+8/18: ATR open 2-4:45pm + 9th FB Game vs Versailles @ City Park  
+8/19: ATR open 2-4:45pm + Var GSoc/BSoc Games vs Greenville @ City Park  
+8/20: ATR open 2-6pm + MS FB Scrimmages vs Greenville @ City Park  
+8/21: ATR open 2-5pm + VB Games vs Troy @ Tipp HS & BSoc Games vs Monroe @ City Park  
+8/22: ATR open 2-4:30pm + Varsity FB Game @ Bellbrook HS  
+8/23: ATR open 8-9:15am + JV FB Game vs Bellbrook @ City Park  
 
 **ATR hours and event coverage details are subject to change**  
 
