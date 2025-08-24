@@ -11,14 +11,14 @@
 
 ---  
 
-### ATR hours for the week of August 18 through 23:  
+### ATR hours for the week of August 25 through 30:  
 
-8/18: ATR open 2-4:45pm + 9th FB Game vs Versailles @ City Park  
-8/19: ATR open 2-4:45pm + Var GSoc/BSoc Games vs Greenville @ City Park  
-8/20: ATR open 2-6pm + MS FB Scrimmages vs Greenville @ City Park  
-8/21: ATR open 2-5pm + VB Games vs Troy @ Tipp HS & BSoc Games vs Monroe @ City Park  
-8/22: ATR open 2-4:30pm + Varsity FB Game @ Bellbrook HS  
-8/23: ATR open 8-9:15am + JV FB Game vs Bellbrook @ City Park  
+8/25: ATR open 2-6pm  
+8/26: ATR open 2-5:30pm + VB vs Stebbins @ Tippecanoe HS  
+8/27: ATR open 2-6pm  
+8/28: ATR open 2-4:45pm + BSoc vs Bellbrook @ City Park  
+8/29: ATR open 2-5:15pm + Varsity FB vs Piqua @ City Park  
+8/30: ATR open 8-9:15am + GSoc vs Carroll & JV BSoc vs Butler @ City Park  
 
 **ATR hours and event coverage details are subject to change**  
 
