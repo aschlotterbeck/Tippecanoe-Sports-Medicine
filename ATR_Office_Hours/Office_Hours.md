@@ -17,7 +17,7 @@
 9/3: ATR open 2-6pm + MS FB vs Fairborn @ City Park  
 9/4: ATR open 2-4:45pm + GSoc Games @ City Park  
 9/5: ATR open 2-5:15pm + Varsity FB vs Fairborn @ City Park  
-9/6: ATR open 8-11:30am  
+9/6: ATR open 8-9am  
 
 **ATR hours and event coverage details are subject to change**  
 
