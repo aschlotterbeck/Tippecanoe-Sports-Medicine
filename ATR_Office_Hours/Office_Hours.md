@@ -12,12 +12,12 @@
 
 ### ATR hours for the week of September 1 through 6:  
 
-9/1: ATR open 7:30-11:30am  
-9/2: ATR open 2-5pm + VB vs Fairborn @ Tippecanoe HS & BSoc vs Xenia @ City Park  
-9/3: ATR open 2-6pm + MS FB vs Fairborn @ City Park  
-9/4: ATR open 2-4:45pm + GSoc Games @ City Park  
-9/5: ATR open 2-5:15pm + Varsity FB vs Fairborn @ City Park  
-9/6: ATR open 8-9am  
+9/8:  ATR open 2-6pm + GSoc games @ City Park  
+9/9:  ATR open 2-6pm  
+9/10: ATR open 2-6pm  
+9/11: ATR open 2-4:45pm + VB games @ Tippecanoe HS & GSoc/BSoc games @ City Park  
+9/12: ATR open 2-4:45pm + Varsity FB @ Stebbins High School  
+9/13: ATR open 8-9:15am + JV FB game, & GSoc + BSoc games @ City Park  
 
 **ATR hours and event coverage details are subject to change**  
 
