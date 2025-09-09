@@ -10,7 +10,7 @@
 
 ---  
 
-### ATR hours for the week of September 1 through 6:  
+### ATR hours for the week of September 8 through 13:  
 
 9/8:  ATR open 2-6pm + GSoc games @ City Park  
 9/9:  ATR open 2-6pm  
