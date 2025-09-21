@@ -10,14 +10,14 @@
 
 ---  
 
-### ATR hours for the week of September 15 through 20:  
+### ATR hours for the week of September 22 through 27:  
 
-9/15: ATR open 2-5pm + VB games @ Tippecanoe HS  
-9/16: ATR open 2-4:45pm + Freshmen FB game @ City Park  
-9/17: ATR open 2-6pm + MS FB games @ City Park  
-9/18: ATR open 2-5pm + BSoc games @ City Park & VB games @ Tippecanoe HS  
-9/19: ATR open 2-5pm + Varsity FB @ Butler High School  
-9/20: ATR open 8-10am + VB games @ Tippecanoe HS & BSoc games @ City Park  
+9/22: ATR open 2-4:45pm + MS football games @ City Park  
+9/23: ATR open 2-6pm + Var BSoc game @ City Park  
+9/24: ATR open 2-5pm + GSoc games @ City Park + VB games @ Tippecanoe HS  
+9/25: ATR open 2-5:15pm + Var FB game @ City Park  
+9/26: ATR open 2-5pm  
+9/27: ATR open 8-10am + VB games @ Tippecanoe HS  
 
 **ATR hours and event coverage details are subject to change**  
 
