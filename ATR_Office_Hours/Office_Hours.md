@@ -17,7 +17,7 @@
 9/24: ATR open 2-5pm + GSoc games @ City Park + VB games @ Tippecanoe HS  
 9/25: ATR open 2-5:15pm + Var FB game @ City Park  
 9/26: ATR open 2-5pm  
-9/27: ATR open 8-10am + VB games @ Tippecanoe HS  
+9/27: ATR open 8-9:30am + VB games @ Tippecanoe HS  
 
 **ATR hours and event coverage details are subject to change**  
 
