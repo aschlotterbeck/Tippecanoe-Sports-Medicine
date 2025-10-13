@@ -13,12 +13,12 @@
 
 ### ATR hours for the week of October 6 through 11:  
 
-10/6: ATR open 2-4:30pm + VB games @ Tippecanoe HS  
-10/7: ATR open 2-5:30pm + VB games @ Tippecanoe HS  
-10/8: ATR open 2-6pm + MS football games @ City Park  
-10/9: ATR open 2-6pm + Freshmen football game @ City Park  
-10/10: ATR open 2-5:15pm + Varsity FB game @ City Park  
-10/11: ATR open 7:30-10am  
+10/13: ATR open 2-6pm  
+10/14: ATR open 2-6pm + BSoc tournament game @ City Park & VB tournament game @ Fairborn HS  
+10/15: ATR open 2-6pm  
+10/16: ATR open 2-6pm + GSoc tournament game @ City Park  
+10/17: ATR open 2-5:15pm + Varsity FB game @ City Park  
+10/18: ATR open 8-10:30am & 5-6pm + BSoc tournament game @ City Park  
 
 **ATR hours and event coverage details are subject to change**  
 
