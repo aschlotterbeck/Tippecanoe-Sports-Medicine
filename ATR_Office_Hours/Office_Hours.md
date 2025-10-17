@@ -18,7 +18,7 @@
 10/15: ATR open 2-6pm  
 10/16: ATR open 2-6pm + GSoc tournament game @ City Park  
 10/17: ATR open 2-5:15pm + Varsity FB game @ City Park  
-10/18: ATR open 8-10:30am & 5-6pm + BSoc tournament game @ City Park  
+10/18: ATR open 8am-1pm + BSoc tournament game @ City Park  
 
 **ATR hours and event coverage details are subject to change**  
 
