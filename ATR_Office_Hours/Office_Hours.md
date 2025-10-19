@@ -11,14 +11,14 @@
 
 ---  
 
-### ATR hours for the week of October 6 through 11:  
+### ATR hours for the week of October 20 through 25:  
 
-10/13: ATR open 2-6pm  
-10/14: ATR open 2-6pm + BSoc tournament game @ City Park & VB tournament game @ Fairborn HS  
-10/15: ATR open 2-6pm  
-10/16: ATR open 2-6pm + GSoc tournament game @ City Park  
-10/17: ATR open 2-5:15pm + Varsity FB game @ City Park  
-10/18: ATR open 8am-1pm + BSoc tournament game @ City Park  
+10/20: ATR open 2-6pm + GSoc tournament game @ CJ HS  
+10/21: ATR open 2-6pm + BSoc tournament game @ City Park  
+10/22: ATR open 2-4:30pm + VB tournament game @ Fairborn HS  
+10/23: ATR open TBA following the outcome of GSoc on 10/20  
+10/24: ATR open 2-4:30pm + Varsity FB game @ West Carrollton HS  
+10/25: ATR open TBA following the outcome of BSoc & VB tournament games on 10/21 & 10/22  
 
 **ATR hours and event coverage details are subject to change**  
 
