@@ -18,7 +18,7 @@
 10/22: ATR open 2-4:30pm + VB tournament game @ Fairborn HS  
 10/23: ATR open 2-6pm  
 10/24: ATR open 2-4:30pm + Varsity FB game @ West Carrollton HS  
-10/25: ATR open TBA following the outcome of BSoc & VB tournament games on 10/21 & 10/22  
+10/25: ATR open 10am-12:30pm + BSoc District Final game @ Trotwood HS  
 
 **ATR hours and event coverage details are subject to change**  
 
