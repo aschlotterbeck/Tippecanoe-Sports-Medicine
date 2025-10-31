@@ -28,7 +28,7 @@
 10/29: ATR open 2-6pm + VB tournament game @ Lakota East HS  
 10/30: ATR open 2-6pm  
 10/31: ATR open 2-6pm  
-11/1: ATR hours > TBA following results of VB game on 10/29  
+11/1: ATR open 8-9:15am + VB Regional Finals @ Lakota East HS  
 
 **ATR hours and event coverage details are subject to change**  
 
