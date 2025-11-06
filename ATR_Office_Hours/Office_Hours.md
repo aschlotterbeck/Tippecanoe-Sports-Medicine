@@ -17,8 +17,8 @@
 11/4: ATR open 2-6pm  
 11/5: ATR open 2-6pm  
 11/6: ATR open 2-6pm  
-11/7: ATR open TBA + FB Playoff Game @ City Park  
-11/8: TBA  
+11/7: ATR open approximately 3:30-5:15pm (depending my return time from VB state semi-final game) + FB Playoff Game @ City Park  
+11/8: TBA following outcome of VB game on 11/7  
 
 **ATR hours and event coverage details are subject to change**  
 
