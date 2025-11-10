@@ -9,16 +9,18 @@
 |23 |24 |25 |26 |27 |28 |29 |
 |30 |   |   |   |   |   |   |
 
----  
+---
 
-### ATR hours for the week of October 27 through November 1:  
+### ATR hours for the week of November 10 to 15:
 
-11/3: ATR open 2-6pm  
-11/4: ATR open 2-6pm  
-11/5: ATR open 2-6pm  
-11/6: ATR open 2-6pm  
-11/7: ATR open approximately 3:30-5:15pm (depending my return time from VB state semi-final game) + FB Playoff Game @ City Park  
-11/8: ATR open 9-11:30am + VB State Finals @ Nutter Center  
+11/10: ATR open 2-6pm
+11/11: ATR open 2-6pm
+11/12: ATR open 2-6pm
+11/13: ATR open 2-6pm
+11/14: ATR open 2-5:10pm + FB Playoff Game @ City Park
+11/15: ATR open 8am-12pm  
 
-**ATR hours and event coverage details are subject to change**  
+**Will step away from office for football practice from 4:15 to 5:15pm on Mon, Tues, & Thurs**  
+
+**ATR hours and event coverage details are subject to change**
 
