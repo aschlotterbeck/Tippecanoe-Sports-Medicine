@@ -11,14 +11,14 @@
 
 ---
 
-### ATR hours for the week of November 10 to 15:
+### ATR hours for the week of November 17 to 22:
 
-11/10: ATR open 2-6pm  
-11/11: ATR open 2-6pm  
-11/12: ATR open 2-6pm  
-11/13: ATR open 2-6pm  
-11/14: ATR open 2-5:10pm + FB Playoff Game @ City Park  
-11/15: ATR open 8am-12pm  
+11/17: ATR open 2-6pm  
+11/18: ATR open 2-6pm  
+11/19: ATR open 2-6pm  
+11/20: ATR open 2-6pm + BBK scrimmage  
+11/21: ATR open TBA + FB Playoff Game vs London HS @ Fairborn HS  
+11/22: ATR open 8-11am  
 
 **Will step away from office for football practice from 4:15 to 5:15pm on Mon, Tues, & Thurs**  
 
