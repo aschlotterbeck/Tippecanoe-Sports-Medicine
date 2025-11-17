@@ -17,7 +17,7 @@
 11/18: ATR open 2-6pm  
 11/19: ATR open 2-6pm  
 11/20: ATR open 2-6pm + BBK scrimmage  
-11/21: ATR open TBA + FB Playoff Game vs London HS @ Fairborn HS  
+11/21: ATR open 2-4:40pm + FB Playoff Game vs London HS @ Fairborn HS  
 11/22: ATR open 8-11am  
 
 **Will step away from office for football practice from 4:15 to 5:15pm on Mon, Tues, & Thurs**  
