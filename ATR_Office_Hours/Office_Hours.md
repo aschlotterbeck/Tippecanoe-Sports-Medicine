@@ -11,16 +11,14 @@
 
 ---
 
-### ATR hours for the week of November 24 to 29:
+### ATR hours for the week of December 1 to 6:
 
-11/24: ATR open 2-6pm + boys basketball scrimmages vs CJ  
-11/25: ATR open 2-6pm  
-11/26: ATR open 7:30-9am + football practice @ City Park  
-11/27: ATR open 7:30-9am + football practice @ City Park  
-11/28: ATR open 2-4:10pm + FB Playoff Game vs Bishop Watterson @ Mason HS  
-11/29: ATR open 8-11am  
-
-**Will step away from office for football practice from 4:15 to 5:15pm on Monday & Tuesday**  
+12/1: ATR open 2-6pm  
+12/2: ATR open 2-6pm  
+12/3: ATR open 2-6pm  
+12/4: ATR open 2-6pm  
+12/5: ATR open 2-6pm  
+12/6: ATR open 9am-12pm  
 
 **ATR hours and event coverage details are subject to change**
 
