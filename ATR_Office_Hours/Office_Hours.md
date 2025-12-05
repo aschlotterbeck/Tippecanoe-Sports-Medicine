@@ -16,7 +16,7 @@
 12/2: ATR open 2-6pm  
 12/3: ATR open 2-6pm  
 12/4: ATR open 2-6pm  
-12/5: ATR open 2-6pm  
+12/5: ATR open 2-6pm (**ATR will be closed 4:30-5:15pm for ImPACT testing with girls basketball**)  
 12/6: ATR open 9am-12pm  
 
 **ATR hours and event coverage details are subject to change**
