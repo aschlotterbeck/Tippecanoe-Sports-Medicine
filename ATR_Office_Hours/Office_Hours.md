@@ -10,17 +10,14 @@
 
 ---
 
-### ATR hours for the week of December 1 to 6:
+### ATR hours for the week of December 8 to 13:
 
-12/1: ATR open 2-6pm  
-12/2: ATR open 2-6pm  
-12/3: ATR open 2-6pm  
-12/4: ATR open 2-6pm  
-12/5: ATR open 2-6pm (**ATR will be closed 4:30-5:15pm for ImPACT testing with girls basketball**)  
-12/6: ATR open 9am-12pm  
+12/8: ATR open 2-6pm  
+12/9: ATR open 2-5pm + HS boys basketball scrimmages  
+12/10: ATR open 2-6pm + HS girls basketball games  
+12/11: ATR open 2-6pm + HS girls basketball games  
+12/12: ATR open 2-6pm  
+12/13: ATR open 7-9am + HS wrestling invitational  
 
 **ATR hours and event coverage details are subject to change**
-
-
-
 
