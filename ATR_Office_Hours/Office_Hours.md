@@ -17,7 +17,7 @@
 12/17: ATR open 2-6pm + HS girls basketball games  
 12/18: ATR open 2-6pm  
 12/19: ATR open 2-6pm  
-12/20: ATR open 8-11am  
+12/20: ATR closed (no practices or home sporting events @ Tippecanoe HS this date)  
 
 **ATR hours and event coverage details are subject to change**
 
