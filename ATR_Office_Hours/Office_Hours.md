@@ -20,7 +20,7 @@
 
 ---
 
-### ATR hours for the week of December 15 to 20:
+### ATR hours for the week of December 22 to January 4:
 
 12/22: ATR open 2-6pm + Fr & JV BBK games  
 12/23: ATR open 2-5pm + JV & Var GBK games + Var BBK games  
