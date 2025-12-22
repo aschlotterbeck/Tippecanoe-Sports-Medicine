@@ -12,12 +12,20 @@
 
 ### ATR hours for the week of December 15 to 20:
 
-12/15: ATR open 2-6pm  
-12/16: ATR open 2-5pm + HS boys basketball games  
-12/17: ATR open 2-6pm + HS girls basketball games  
-12/18: ATR open 2-6pm  
-12/19: ATR open 2-6pm  
-12/20: ATR closed (no practices or home sporting events @ Tippecanoe HS this date)  
+12/22: ATR open 2-6pm + Fr & JV BBK games  
+12/23: ATR open 2-5pm + JV & Var GBK games + Var BBK games  
+12/24: ATR closed  
+12/25: ATR closed  
+12/26: ATR open 9am-12pm  
+12/27: ATR closed  
+12/28: ATR closed  
+12/29: ATR open 9am-12pm  
+12/30: ATR closed  
+12/31: ATR closed  
+1/1: ATR closed  
+1/2: ATR open 2-5pm + BBK games  
+1/3: ATR open 9-10:30am + GBK games  
+1/4: ATR closed  
 
 **ATR hours and event coverage details are subject to change**
 
