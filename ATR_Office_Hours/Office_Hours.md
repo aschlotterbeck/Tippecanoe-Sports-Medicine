@@ -12,12 +12,12 @@
 
 ### ATR hours for the week of January 5 to 10:  
 
-1/5: ATR open 2-6pm  
-1/6: ATR open 2-6pm  
-1/7: ATR open 2-6pm  
-1/8: ATR open 2-6pm + HS Wrestling Duals  
-1/9: ATR open 2-6pm  
-1/10: ATR open 2-3pm + Boys Basketball Games  
+1/12: ATR open 2-6pm  
+1/13: ATR open 2-5pm + Boys Basketball Games  
+1/14: ATR open 2-6pm + Girls Basketball Games  
+1/15: ATR open 2-6pm  
+1/16: ATR open 2-6pm  
+1/17: TBD  
 
 **ATR hours and event coverage details are subject to change**
 
