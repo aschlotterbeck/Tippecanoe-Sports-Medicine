@@ -10,7 +10,7 @@
 
 ---
 
-### ATR hours for the week of January 5 to 10:  
+### ATR hours for the week of January 12 to 17:  
 
 1/12: ATR open 2-6pm  
 1/13: ATR open 2-5pm + Boys Basketball Games  
