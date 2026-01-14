@@ -17,7 +17,7 @@
 1/14: ATR open 2-6pm + Girls Basketball Games  
 1/15: ATR open 2-6pm  
 1/16: ATR open 2-6pm  
-1/17: TBD  
+1/17: ATR closed  
 
 **ATR hours and event coverage details are subject to change**
 
