@@ -16,8 +16,8 @@
 1/20: ATR open 2-5pm + Boys Basketball Games  
 1/21: ATR open 2-6pm + Girls Basketball Games  
 1/22: ATR open 2-6pm  
-1/23: ATR open 2-6pm  
-1/24: ATR open 4-5pm + Boys Basketball Games  
+1/23: ATR open 2-5:30pm  
+1/24: ATR open 12-1pm + Boys Basketball Games  
 
 **ATR hours and event coverage details are subject to change**
 
