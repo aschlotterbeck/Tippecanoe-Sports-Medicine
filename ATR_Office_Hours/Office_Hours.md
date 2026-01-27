@@ -23,7 +23,7 @@
 ### ATR hours for the week of January 26 to 31:  
 
 1/26: ATR closed + All athletic activities canceled due to inclement weather  
-1/27: ATR open 2-6pm  
+1/27: ATR closed + All athletic activities canceled due to inclement weather  
 1/28: ATR open 2-6pm + Girls Basketball Games  
 1/29: ATR open 2-6pm  
 1/30: ATR open 2-6pm  
