@@ -24,7 +24,7 @@
 
 1/26: ATR closed + All athletic activities canceled due to inclement weather  
 1/27: ATR closed + All athletic activities canceled due to inclement weather  
-1/28: ATR open 2-6pm + Girls Basketball Games  
+1/28: ATR open 2-6pm (voluntary practices permitted until 6pm)  
 1/29: ATR open 2-6pm  
 1/30: ATR open 2-6pm  
 1/31: ATR open 12-1pm + Boys Basketball Games  
