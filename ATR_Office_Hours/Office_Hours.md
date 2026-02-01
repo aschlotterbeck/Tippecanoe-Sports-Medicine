@@ -12,7 +12,7 @@
 
 ### ATR hours for the week of February 2 through 7:  
 
-2/2: ATR open 2-6pm 
+2/2: ATR open 2-6pm  
 2/3: ATR open 2-5pm + home boys basketball games  
 2/4: ATR open 2-6pm + home girls basketball games  
 2/5: ATR open 2-6pm + home wrestling dual meet  
