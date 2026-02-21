@@ -24,9 +24,9 @@
 ### ATR hours for the week of February 23 through 28:  
 
 2/23: ATR open 2-6pm  
-2/24: ATR open 2-6pm
+2/24: ATR open 2-6pm  
 2/25: ATR open 2-6pm + GBK tournament game @ Springfield HS  
-2/26: ATR open 2-6pm
+2/26: ATR open 2-6pm  
 2/27: ATR open 2-6pm  
 2/28: TBD following outcome of tournament games  
 
