@@ -28,7 +28,7 @@
 2/25: ATR open 2-6pm + GBK tournament game @ Springfield HS  
 2/26: ATR open 2-6pm  
 2/27: ATR open 2-6pm  
-2/28: TBD following outcome of tournament games  
+2/28: ATR open 8am to 12pm + GBK tournament game @ Lakota West  
 
 **ATR hours and event coverage details are subject to change**
 
