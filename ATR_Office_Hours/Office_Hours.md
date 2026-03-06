@@ -18,7 +18,7 @@
 3/4: ATR open 2-6pm  
 3/5: ATR open 2-6pm  
 3/6: ATR open 2-6pm  
-3/7: TBD following results of 3/2 & 3/3 tournament games  
+3/7: ATR closed, will be traveling for BBK tournament game @ UD Arena  
 
 **ATR hours and event coverage details are subject to change**
 
