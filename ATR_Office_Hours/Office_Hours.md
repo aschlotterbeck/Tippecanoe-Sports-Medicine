@@ -11,14 +11,14 @@
 
 ---
 
-### ATR hours for the week of March 2 through 7:  
+### ATR hours for the week of March 9 through 14:  
 
-3/2: ATR open 2-6pm + BBK tournament game @ Centerville HS  
-3/3: ATR open 2-6pm + GBK tournament game @ Lakota East HS  
-3/4: ATR open 2-6pm  
-3/5: ATR open 2-6pm  
-3/6: ATR open 2-6pm  
-3/7: ATR closed, will be traveling for BBK tournament game @ UD Arena  
+3/9: ATR open 2-4:15pm + Softball scrimmage @ 5pm  
+3/10: ATR open 2-3:45pm + traveling to Xavier University/Cintas Center for BBK tournament game @ 6pm  
+3/11: ATR open 2-6pm  
+3/12: ATR open 2-6pm  
+3/13: ATR open 2-6pm  
+3/14: TBA following the outcome of BBK game on 3/10  
 
 **ATR hours and event coverage details are subject to change**
 
