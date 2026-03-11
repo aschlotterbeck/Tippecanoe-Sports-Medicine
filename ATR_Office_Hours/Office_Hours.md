@@ -18,7 +18,7 @@
 3/11: ATR open 2-6pm  
 3/12: ATR open 2-6pm  
 3/13: ATR open 2-6pm  
-3/14: TBA following the outcome of BBK game on 3/10  
+3/14: ATR open 9am-12pm  
 
 **ATR hours and event coverage details are subject to change**
 
