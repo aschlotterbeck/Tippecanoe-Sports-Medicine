@@ -11,14 +11,14 @@
 
 ---
 
-### ATR hours for the week of March 9 through 14:  
+### ATR hours for the week of March 16 through 21:  
 
-3/9: ATR open 2-4:15pm + Softball scrimmage @ 5pm  
-3/10: ATR open 2-3:45pm + traveling to Xavier University/Cintas Center for BBK tournament game @ 6pm  
-3/11: ATR open 2-6pm  
-3/12: ATR open 2-6pm  
-3/13: ATR open 2-6pm  
-3/14: ATR open 9am-12pm  
+3/16: ATR open 2-6pm  
+3/17: ATR open 2-2:45pm & 5-6pm (will be away from the office from 3-5pm for ImPACT concussion baseline testing with track)  
+3/18: ATR open 2-6pm  
+3/19: ATR open 2-4:15pm + JV softball scrimmage  
+3/20: ATR open 2-4:15pm + Var softball scrimmage  
+3/21: ATR open 8am-12pm  
 
-**ATR hours and event coverage details are subject to change**
+**Check back regularly as ATR hours and event coverage details are subject to change frequently throughout the spring due to weather related game cancelations and reschedulings**
 
