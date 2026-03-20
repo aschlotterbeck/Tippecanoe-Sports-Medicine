@@ -13,12 +13,19 @@
 
 ### ATR hours for the week of March 16 through 21:  
 
-3/16: ATR open 2-6pm  
-3/17: ATR open 2-2:45pm & 5-6pm (will be away from the office from 3-5pm for ImPACT concussion baseline testing w/ track)  
-3/18: ATR open 2-6pm  
-3/19: ATR open 2-4:15pm + JV softball scrimmage  
 3/20: ATR open 2-4:15pm + JV softball scrimmage  
-3/21: ATR hours are TBA  
+3/21: ATR open 9am to noon  
+
+### ATR hours for the week of Spring Break:  
+
+3/23: ATR closed  
+3/24: ATR open 1:30-5pm  
+3/25: ATR closed  
+3/26: ATR open 1:30-5pm  
+3/27: ATR closed  
+3/28: ATR closed  
 
 **Check back regularly as ATR hours and event coverage details are subject to change frequently throughout the spring due to weather related game cancelations and reschedulings**
+
+
 
