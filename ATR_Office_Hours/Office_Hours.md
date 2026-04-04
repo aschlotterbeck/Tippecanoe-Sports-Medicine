@@ -10,16 +10,17 @@
 
 ---
 
-### ATR hours for the week of March 30 through April 4:  
+### ATR hours for the week of April 6 thru 11:  
 
-3/30: ATR open 2-4:15pm + 5pm JV baseball game vs Xenia @ Kyle Park  
-3/31: ATR open 2-6pm  
-4/1: ATR open 2-4:15pm + 5pm Var softball game vs Xenia  
-4/2: ATR open 2-4:15pm + 5pm Var softball game vs Beavercreek  
-4/3: ATR open 2-4:15pm + 5pm Var softball game vs Piqua  
-4/4: ATR closed 
+4/6: ATR open 2-4:15pm + JV baseball & softball games  
+4/7: ATR open 2-4:15pm + Var softball game  
+4/8: ATR open 2-6pm + JV softball game  
+4/9: ATR open 2-4:15pm + JV baseball & softball games  
+4/10: ATR open 2-4:15pm + Var baseball & softball games  
+4/11: ATR open 12-1:15pm + JV baseball game  
 
-**Check back regularly as ATR hours and event coverage details are subject to change frequently throughout the spring due to weather related game cancelations and reschedulings**
+**Check back regularly as ATR hours & event coverage details are subject to change frequently throughout the spring due to weather related game cancelations & reschedulings.**  
+
 
 
 
