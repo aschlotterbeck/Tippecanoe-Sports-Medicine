@@ -10,17 +10,13 @@
 
 ---
 
-### ATR hours for the week of April 6 thru 11:  
+### ATR hours for the week of April 13 thru 18:  
 
-4/6: ATR open 2-4:15pm + JV baseball & softball games  
-4/7: ATR open 2-4:15pm + Var softball game  
-4/8: ATR open 2-6pm + JV softball game  
-4/9: ATR open 2-4:15pm + JV baseball & softball games  
-4/10: ATR open 2-4:15pm + Var softball game  
-4/11: ATR will be closed this Saturday  
+4/13: ATR open 2-4:15pm + JV baseball & Var softball games  
+4/14: ATR open 2-6pm  
+4/15: ATR open 2-6pm + JV softball & Var baseball games  
+4/16: ATR open 2-4:15pm + JVB baseball game  
+4/17: ATR open 2-4:15pm + Var baseball & softball games  
+4/18: ATR open 8-9am + Var softball triple header  
 
 **Check back regularly as ATR hours & event coverage details are subject to change frequently throughout the spring due to weather related game cancelations & reschedulings.**  
-
-
-
-
