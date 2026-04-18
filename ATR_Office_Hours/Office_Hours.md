@@ -13,7 +13,7 @@
 ### ATR hours for the week of April 17 thru 25:  
 
 4/17: ATR open 2-4:15pm + Var baseball & softball games  
-4/18: ATR open 8-9am + Var softball triple header  
+4/18: Today's varsity softball triple header has been canceled, ATR will now be closed for Saturday, April 18th  
 
 4/20: ATR open 2-4:15pm + JV baseball & softball games  
 4/21: ATR open 2-4:15pm + JV baseball game  
