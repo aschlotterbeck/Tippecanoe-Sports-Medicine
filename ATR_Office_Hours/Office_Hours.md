@@ -27,7 +27,7 @@
 4/28: ATR open 2-4:15pm + Var softball game  
 4/29: ATR open 2-6pm + JV baseball & softball games  
 4/30: ATR open 2-6pm  
-5/1: ATR open 2-5:30pm + Var baseball game @ Day Air Ballpark  
+5/1: ATR open 2-4:15pm + JV softball game  
 5/2: TBA  
 
 **Check back regularly as ATR hours & event coverage details are subject to change frequently throughout the spring due to weather related game cancelations & reschedulings.**  
