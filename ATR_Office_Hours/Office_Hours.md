@@ -25,8 +25,8 @@
 
 4/27: ATR open 2-4:15pm + Var baseball & softball games  
 4/28: ATR open 2-4:15pm + Var softball game  
-4/29: ATR open 2-6pm + JV baseball & softball games  
-4/30: ATR open 2-6pm  
+4/29: ATR open 2-6pm  
+4/30: ATR open 2-4:15pm + JV baseball games  
 5/1: ATR open 2-4:15pm + JV softball game  
 5/2: TBA  
 
