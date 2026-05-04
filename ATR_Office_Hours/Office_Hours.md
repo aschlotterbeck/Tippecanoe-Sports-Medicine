@@ -12,9 +12,6 @@
 
 ### ATR hours for the remainder of this week (updated) and for the week of May 4 thru May 9:  
 
-5/1: ATR open 2-4:15pm + JV softball game (home) & Var baseball game (@ Day Air Ballpark)  
-5/2: ATR closed (no home sporting events)  
-
 5/4: ATR open 2-4:15pm + JV baseball & Var softball games  
 5/5: ATR open 2-4:30pm + Var baseball game  
 5/6: ATR open 2-4:15pm + JV baseball & softball games  
