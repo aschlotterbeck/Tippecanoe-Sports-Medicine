@@ -13,7 +13,7 @@
 ### ATR hours for the remainder of this week (updated) and for the week of May 4 thru May 9:  
 
 5/4: ATR open 2-4:15pm + JV baseball & Var softball games  
-5/5: ATR open 2-4:30pm + Var baseball game  
+5/5: ATR open 2-5:30pm  
 5/6: ATR open 2-4:15pm + JV baseball & softball games  
 5/7: ATR open 2-4:15pm + JV softball game  
 5/8: ATR open 2-4:15pm + Var softball game (home) & Var baseball game (@ WSU)  
