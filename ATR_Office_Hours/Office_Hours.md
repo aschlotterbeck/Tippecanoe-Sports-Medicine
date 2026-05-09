@@ -10,7 +10,7 @@
 
 ---
 
-### ATR hours for the remainder of this week (updated) and for the week of May 11 thru 16:  
+### ATR hours for the week of May 11 thru 16:  
 
 5/11: ATR open 2-6pm  
 5/12: ATR open 2-3:30pm  
