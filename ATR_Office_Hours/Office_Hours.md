@@ -11,12 +11,18 @@
 ---
 
 ### ATR hours for the week of May 11 thru 16:  
-
-5/11: ATR open 2-6pm  
-5/12: ATR open 2-3:30pm  
-5/13: ATR open 2-4:15pm + Var baseball game  
-5/14: ATR open 2-4pm + JV baseball game & Var softball sectional game  
-5/15: ATR open 2-4:15pm + Var baseball game  
+  
 5/16: ATR open 10-11:15am + Var & JV"B" baseball games  
+
+**The JV"B" baseball game scheduled for 12PM has been canceled. Training room will now be open 12:30-1:30PM. If the 2:15PM varsity baseball game gets canceled, then the training room will be closed until Monday.**  
+
+## ATR hours for the week of May 18 thru 23:  
+
+5/18: ATR open 2-6pm  
+5/19: ATR open 2-4pm + Var softball sectional tournament game  
+5/20: ATR open 2-4pm + Var baseball sectional tournament game  
+5/21: TBD following the outcome of game on 5/19  
+5/22: ATR open 2-6pm  
+5/23: ATR open TBD  
 
 **Check back regularly as ATR hours & event coverage details are subject to change frequently throughout the spring due to weather related game cancelations & reschedulings.**  
