@@ -12,9 +12,7 @@
 
 ### ATR hours for the week of May 11 thru 16:  
   
-5/16: ATR open 10-11:15am + Var & JV"B" baseball games  
-
-**The JV"B" baseball game scheduled for 12PM has been canceled. Training room will now be open 12:30-1:30PM. If the 2:15PM varsity baseball game gets canceled, then the training room will be closed until Monday.**  
+5/16: Both of today's home baseball games have been canceled due to weather. ATR will be closed until Monday.  
 
 ## ATR hours for the week of May 18 thru 23:  
 
