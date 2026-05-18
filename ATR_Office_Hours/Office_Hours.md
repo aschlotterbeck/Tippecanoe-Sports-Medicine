@@ -16,11 +16,11 @@
 
 ## ATR hours for the week of May 18 thru 23:  
 
-5/18: ATR open 2-6pm  
+5/18: ATR open 2-4:30pm  
 5/19: ATR open 2-4pm + Var softball sectional tournament game  
 5/20: ATR open 2-4pm + Var baseball sectional tournament game  
 5/21: TBD following the outcome of game on 5/19  
 5/22: ATR open 2-6pm  
-5/23: ATR open TBD  
+5/23: ATR closed  
 
 **Check back regularly as ATR hours & event coverage details are subject to change frequently throughout the spring due to weather related game cancelations & reschedulings.**  
