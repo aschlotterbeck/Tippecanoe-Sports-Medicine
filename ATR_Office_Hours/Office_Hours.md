@@ -10,16 +10,12 @@
 
 ---
 
-### ATR hours for the week of May 11 thru 16:  
-  
-5/16: Both of today's home baseball games have been canceled due to weather. ATR will be closed until Monday.  
-
 ## ATR hours for the week of May 18 thru 23:  
 
 5/18: ATR open 2-4:30pm  
 5/19: ATR open 2-4pm + Var softball sectional tournament game  
-5/20: ATR open 2-4pm + Var baseball sectional tournament game  
-5/21: TBD following the outcome of game on 5/19  
+5/20: ATR open 2-5:30pm (due to weather conditions, today's varsity baseball sectional game has been moved to 5/21)  
+5/21: ATR open 2-4pm + Var baseball sectional tournament game @ home  
 5/22: ATR open 2-6pm  
 5/23: ATR closed  
 
