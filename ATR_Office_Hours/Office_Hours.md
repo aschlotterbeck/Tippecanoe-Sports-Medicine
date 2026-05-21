@@ -12,10 +12,7 @@
 
 ## ATR hours for the week of May 18 thru 23:  
 
-5/18: ATR open 2-4:30pm  
-5/19: ATR open 2-4pm + Var softball sectional tournament game  
-5/20: ATR open 2-5:30pm (due to weather conditions, today's varsity baseball sectional game has been moved to 5/21)  
-5/21: ATR open 2-4pm + Var baseball sectional tournament game @ home  
+5/21: Update effective 2:30pm today, Var baseball sectional tournament game has been canceled due to a Ponitz forfeit; training room will be open 2-3:15pm and then I will be traveling to Hamilton HS for today's softball district final game  
 5/22: ATR open 2-6pm  
 5/23: ATR closed  
 
