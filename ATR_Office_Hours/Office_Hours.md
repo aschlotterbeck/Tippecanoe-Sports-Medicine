@@ -10,10 +10,13 @@
 
 ---
 
-## ATR hours for the week of May 18 thru 23:  
+## ATR hours for the week of May 25 thru 30:  
 
-5/21: Update effective 2:30pm today, Var baseball sectional tournament game has been canceled due to a Ponitz forfeit; training room will be open 2-3:15pm and then I will be traveling to Hamilton HS for today's softball district final game  
-5/22: ATR open 2-6pm  
-5/23: ATR closed  
+May 25th: Closed  
+May 26th: ATR will be open from 2pm to 5pm  
+May 27th: ATR will be open from 1pm to 3:30pm + home varsity BB tournament game vs Bellefontaine HS & away varsity SB tournament game vs Greenville  
+May 28th: TBD following outcome of tournament games  
+May 29th: TBD following outcome of tournament games   
+May 30th: Closed  
 
 **Check back regularly as ATR hours & event coverage details are subject to change frequently throughout the spring due to weather related game cancelations & reschedulings.**  
