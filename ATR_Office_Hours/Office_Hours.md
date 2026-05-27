@@ -14,8 +14,8 @@
 
 May 25th: Closed  
 May 26th: ATR will be open from 2pm to 5pm  
-May 27th: ATR will be open from 1pm to 3:30pm + home varsity BB tournament game vs Bellefontaine HS & away varsity SB tournament game vs Greenville  
-May 28th: TBD following outcome of tournament games  
+May 27th: Today's ballgames have been postponed to May 27th. ATR will be closed today.  
+May 28th: ATR will be open from 2pm to 3:15pm. Moe will be covering the 5pm home tournament baseball game vs Bellefontaine. Aaron will be covering the 5pm away tournament softball game vs Greenville @ Newton High School.  
 May 29th: TBD following outcome of tournament games   
 May 30th: Closed  
 
