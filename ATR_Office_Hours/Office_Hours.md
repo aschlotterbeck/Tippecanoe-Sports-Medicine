@@ -12,11 +12,12 @@
 
 ## ATR hours for the week of May 25 thru 30:  
 
-May 25th: Closed  
-May 26th: ATR will be open from 2pm to 5pm  
-May 27th: Today's ballgames have been postponed to May 27th. ATR will be closed today.  
+**Update as of 8:35am on 5/28/26. There is a possibility that today's baseball game gets moved to an earlier time at another school's facilities depending on the condition of our ballfield after yesterday's rain. Will update ATR hours once I know more."**  
+
 May 28th: ATR will be open from 2pm to 3:15pm. Moe will be covering the 5pm home tournament baseball game vs Bellefontaine. Aaron will be covering the 5pm away tournament softball game vs Greenville @ Newton High School.  
-May 29th: TBD following outcome of tournament games   
+
+May 29th: TBD following outcome of tournament games  
+ 
 May 30th: Closed  
 
 **Check back regularly as ATR hours & event coverage details are subject to change frequently throughout the spring due to weather related game cancelations & reschedulings.**  
