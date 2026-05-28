@@ -12,9 +12,9 @@
 
 ## ATR hours for the week of May 25 thru 30:  
 
-**Update as of 8:35am on 5/28/26. There is a possibility that today's baseball game gets moved to an earlier time at another school's facilities depending on the condition of our ballfield after yesterday's rain. Will update ATR hours once I know more."**  
+**Update as of 9:10am on 5/28/26. It has been confirmed that today's Bellefontaine vs Tippecanoe tournament baseball game will still be played at 5pm at our home field. ATR hours for 5/28 are accurate."**  
 
-May 28th: ATR will be open from 2pm to 3:15pm. Moe will be covering the 5pm home tournament baseball game vs Bellefontaine. Aaron will be covering the 5pm away tournament softball game vs Greenville @ Newton High School.  
+May 28th: ATR will be open from 2pm to 3pm. Moe will be covering the 5pm home tournament baseball game vs Bellefontaine. Aaron will be covering the 5pm away tournament softball game vs Greenville @ Newton High School.  
 
 May 29th: TBD following outcome of tournament games  
  
