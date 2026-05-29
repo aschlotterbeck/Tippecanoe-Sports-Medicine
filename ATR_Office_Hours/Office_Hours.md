@@ -12,12 +12,8 @@
 
 ## ATR hours for the week of May 25 thru 30:  
 
-**Update as of 9:10am on 5/28/26. It has been confirmed that today's Bellefontaine vs Tippecanoe tournament baseball game will still be played at 5pm at our home field. ATR hours for 5/28 are accurate."**  
+May 29th: ATR open 2-3pm, then traveling to Hamilton HS for the 5pm district finals baseball game @ Hamilton HS  
 
-May 28th: ATR will be open from 2pm to 3pm. Moe will be covering the 5pm home tournament baseball game vs Bellefontaine. Aaron will be covering the 5pm away tournament softball game vs Greenville @ Newton High School.  
-
-May 29th: TBD following outcome of tournament games  
- 
 May 30th: Closed  
 
 **Check back regularly as ATR hours & event coverage details are subject to change frequently throughout the spring due to weather related game cancelations & reschedulings.**  
