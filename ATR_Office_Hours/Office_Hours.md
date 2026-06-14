@@ -10,13 +10,8 @@
 
 ---
 
-## ATR hours for the week of June 8th:  
+## ATR hours for the week of June 15th:  
 
-June 8: ATR closed  
-June 9: ATR open 7am to 12pm  
-June 10: ATR open 7am to 12pm  
-June 11: ATR open 7am to 12pm  
-June 12: ATR closed  
-June 13: ATR closed  
+**I will be out of the office from June 15th thru June 21st. Training room hours will resume the week of June 22nd.**  
 
 **Athletic Training Room (ATR) hours will vary throughout the months of June and July, check back regularly for updated hours.**  
