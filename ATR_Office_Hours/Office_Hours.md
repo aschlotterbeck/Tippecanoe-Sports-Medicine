@@ -15,8 +15,10 @@
 June 29: ATR open 7am to 12pm  
 June 30: ATR open 7am to 12pm  
 July 1: ATR closed  
-July 2: ATR open 7am to 12pm  
+July 2: ATR closed  
 July 3: ATR closed  
 July 4: ATR closed  
+
+Training Room hours will resume again on Monday, July 6 from 7am to 12pm.  
 
 **Athletic Training Room (ATR) hours will vary throughout the months of June and July, check back regularly for updated hours.**  
