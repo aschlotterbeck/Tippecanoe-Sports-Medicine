@@ -23,6 +23,4 @@ July 16: ATR open 7am to 12pm
 July 17: ATR closed  
 July 18: ATR closed  
 
-ATR hours will continue to be posted here on GitHub through the end of August 2026. We are currently transitioning to the use of the sportsYou mobile app and website to share office hours and improve communication with parents and athletes. Setup instructions and access code for the sportsYou app are available below:  
-
 **Athletic Training Room (ATR) hours will vary throughout the months of June and July, check back regularly for updated hours.**  
