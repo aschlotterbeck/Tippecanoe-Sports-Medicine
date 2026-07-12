@@ -10,9 +10,9 @@
 
 ---
 
-ATR hours will continue to be posted here on GitHub through the end of August 2026. We are currently transitioning to the use of the sportsYou mobile app and website to share office hours and improve communication with parents and athletes. Setup instructions and access code for the sportsYou app are available below:
+**ATR hours will continue to be posted here on GitHub through the end of August 2026. We are currently transitioning to the use of the sportsYou mobile app and website to share office hours and improve communication with parents and athletes. Setup instructions and access code for the sportsYou app are available below:**  
 
-![Link to sportsYou app instructions and access code available here](signup_Tippecanoe_Red_Devils_ATC_-_Aaron_Schlotterbeck.pdf)  
+[Link to sportsYou app instructions and access code available here](signup_Tippecanoe_Red_Devils_ATC_-_Aaron_Schlotterbeck.pdf)  
 
 ## ATR hours for the week of July 13 thru July 18:  
 
@@ -24,7 +24,5 @@ July 17: ATR closed
 July 18: ATR closed  
 
 ATR hours will continue to be posted here on GitHub through the end of August 2026. We are currently transitioning to the use of the sportsYou mobile app and website to share office hours and improve communication with parents and athletes. Setup instructions and access code for the sportsYou app are available below:  
-
-![Link to sportsYou app instructions and access code available here](signup_Tippecanoe_Red_Devils_ATC_-_Aaron_Schlotterbeck.pdf)  
 
 **Athletic Training Room (ATR) hours will vary throughout the months of June and July, check back regularly for updated hours.**  
