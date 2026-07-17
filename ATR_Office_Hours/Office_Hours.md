@@ -14,13 +14,20 @@
 
 [Link to sportsYou app instructions and access code available here](signup_Tippecanoe_Red_Devils_ATC_-_Aaron_Schlotterbeck.pdf)  
 
-## ATR hours for the week of July 13 thru July 18:  
+## ATR hours for the week of July 13-18 and July 20-25:  
 
 July 13: ATR open 7am to 12pm  
 July 14: ATR open 7am to 12pm  
 July 15: ATR closed  
-July 16: ATR open 7am to 12pm    
+July 16: ATR open 7am to 12pm  
 July 17: ATR closed  
 July 18: ATR closed  
+
+July 20: ATR open 7am to 12pm  
+July 21: ATR open 7am to 12pm  
+July 22: ATR closed  
+July 23: ATR open 7am to 12pm  
+July 24: ATR closed  
+July 25: ATR closed  
 
 **Athletic Training Room (ATR) hours will vary throughout the months of June and July, check back regularly for updated hours.**  
